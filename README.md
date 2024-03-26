@@ -2,7 +2,7 @@
 	
 	marcelo.oliveira.carneiro@gmail.com
 	marcelo.oliveira.carneiro@hotmail.com
- 	+55 27 99291-0131
+ 	+55 (27) 99291-0131
 
 Profissional de TI desde 1991. 
 <br>
